@@ -11,5 +11,6 @@
 - I'm always offtab except if I'm doing something, w2i
 - I don't specifically have a dni list, darkshippers and weirdos pls dni, proshippers r on the thinnest ice known to man
 - Also don't make my friends uncomfortable ty
+- Ask for my tiktok and discord ^_^
 
 ![](https://64.media.tumblr.com/e02ce795cfb44ef8f2463670c95b8a6f/3222d411b29639fe-8b/s400x600/4dc96882ebc0389a9414fc7b6ebb244fdddf4565.pnj)
