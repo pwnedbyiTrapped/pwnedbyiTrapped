@@ -3,7 +3,7 @@
 ![](https://64.media.tumblr.com/d0e6dd403067ac1b1e13ad71507087c5/6e9a71b5f3664bde-fd/s2048x3072/ea58769e8f895faf18f27569649415e1677216ad.pnj)
 
 - I go by Nate, iTrapped or Twister
-- Minor (ask for my age)
+- 17
 - We are a system, most of us don't even bother using we/us so
 - My memory is straight up ass so reminders would be great if I act confused like fish out of water
 - I'm into Forsaken, MM12 and Roblox exploiters/hackers/admin fandom (Although I'm not even in touch with the fandoms I do my own thing)
