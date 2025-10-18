@@ -69,8 +69,7 @@ ${\color{gold} I {}}$ ${\color{gold} love {}}$ ${\color{gold} and {}}$ ${\color{
 
 <p align=center
 
- ${\color{gold} I {}}$ ${\color{gold} only {}}$ ${\color{gold} accept {}}$ ${\color{gold} requests {}}$ ${\color{gold} if {}}$ ${\color{gold} we {}}$ ${\color{gold} atleast {}}$ ${\color{gold} talked {}}$ ${\color{gold} several {}}$ ${\color{gold} times. {}}$ ![](https://64.media.tumblr.com/31479a66cc145400e5500f6826a9c2b4/6f1e5bdf78d09eae-2b/s75x75_c1/8c551b7311ba9c8b86c0e5dac2f06406fc243ee5.gifv)
-)
+ ${\color{gold} I {}}$ ${\color{gold} only {}}$ ${\color{gold} accept {}}$ ${\color{gold} requests {}}$ ${\color{gold} if {}}$ ${\color{gold} we {}}$ ${\color{gold} atleast {}}$ ${\color{gold} talked {}}$ ${\color{gold} several {}}$ ${\color{gold} times. {}}$ ![](https://64.media.tumblr.com/31479a66cc145400e5500f6826a9c2b4/6f1e5bdf78d09eae-2b/s75x75_c1/8c551b7311ba9c8b86c0e5dac2f06406fc243ee5.gifv) 
 
 <p align=center
 
