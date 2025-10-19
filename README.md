@@ -26,7 +26,7 @@ ${\color{lightblue} 17 {}}$ ${\color{lightblue} years {}}$ ${\color{lightblue} o
 
  <p align=center
 
-![](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv) ${\color{lightblue} I {}}$ ${\color{lightblue} like {}}$ ${\color{lightblue} Forsaken, {}}$ ${\color{lightblue} MM12 {}}$ ${\color{lightblue} MM12 {}}$ ${\color{lightblue} and {}}$ ${\color{lightblue} Roblox {}}$ ${\color{lightblue} Admins {}}$ ${\color{lightblue} and {}}$ ${\color{lightblue} Hackers {}}$ 
+![](https://64.media.tumblr.com/32c65eea5f2eedec07737667681bc597/db7ce6708c01e3ab-83/s75x75_c1/1e58271c4a5c1a1709de0e95e497fd5e51a0eea4.gifv) ${\color{lightblue} I {}}$ ${\color{lightblue} like {}}$ ${\color{lightblue} Forsaken, {}}$ ${\color{lightblue} MM12 {}}$ ${\color{lightblue} and {}}$ ${\color{lightblue} Roblox {}}$ ${\color{lightblue} Admins {}}$ ${\color{lightblue} and {}}$ ${\color{lightblue} Hackers {}}$ 
 
  <p align=center
 
